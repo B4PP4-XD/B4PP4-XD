@@ -54,11 +54,11 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [Mohammad Nayan](https://www.facebook.com/84PP4)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [BAPPPA DEBNATH](https://www.facebook.com/84PP4)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏 :- [BAPPA](https://wa.me/+8801404956468)
+- 📱𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏 :- [BAPPA](https://wa.me/+8801317945538)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
